@@ -1,1 +1,4 @@
-# b-i-n-g-o
+# a-gu-gu
+# gai-gai
+# rah-rah
+# meow-meow
